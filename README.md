@@ -1,2 +1,1 @@
-# UniversityManagement
-Good
+# СРО от Еслямгалиев Ғилман
